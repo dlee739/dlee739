@@ -1,2 +1,2 @@
-Computer Science student at Western University
- // Contact: dlee739@uwo.ca
+Computing & Software MEng @ McMaster University
+ // Contact: lee1579@mcmaster.ca
