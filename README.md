@@ -1,1 +1,1 @@
-Computing & Software MEng @ McMaster // Contacts: lee1579@mcmaster.ca
+Computing & Software MEng (Co-op) @ McMaster // Contacts: lee1579@mcmaster.ca
